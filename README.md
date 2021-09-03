@@ -5,7 +5,7 @@ Creative work often requires the manipulation of paper textures. But it’s hard
 
 How do you make your digital art look more realistic? A background in the right place can really set off an artwork. Decorative Paper Background Textures are available as a Creative Market Marketplace. Currently available on purchase for $9, this set comes with 72 hi-res JPG files.
 
-You’re a designer looking for high-quality decorative paper textures to use in your creative projects. Not only are the textures you find on popular royalty-free stock photography sites low resolution, weak canvas-like backgrounds, but they’re also generic in nature. With Decorative Paper Background Textures, designers will be able to browse through 100s of unique background textures and find that perfect paper texture for their project.
+You’re a designer looking for high-quality <a href="https://textures.world/paper/72-decorative-paper-textures">decorative paper textures</a> to use in your creative projects. Not only are the textures you find on popular royalty-free stock photography sites low resolution, weak canvas-like backgrounds, but they’re also generic in nature. With Decorative Paper Background Textures, designers will be able to browse through 100s of unique background textures and find that perfect paper texture for their project.
 
  This collection contains all the best textures, from vintage envelopes and classic book pages to colorful marble and stone varieties. Browse our selection of premium and free paper textures which are sure to make any creative project shine.
 
