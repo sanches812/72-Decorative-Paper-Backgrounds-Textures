@@ -1,37 +1,11 @@
-## Welcome to GitHub Pages
+## 72 Decorative Paper Backgrounds Textures 
 
-You can use the [editor on GitHub](https://github.com/sanches812/72-Decorative-Paper-Backgrounds-Textures/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+Creative work often requires the manipulation of paper textures. But it’s hard to find high-quality ones because they are not usually available for free download. We have decided to create this unique collection of decorative paper backgrounds in order to fulfill this demand, without spending a lot of money on something that is out there but you can’t use it. Download the set from our website now and get access to the rarest decorative and handcrafted paper textures on the internet!
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+How do you make your digital art look more realistic? A background in the right place can really set off an artwork. Decorative Paper Background Textures are available as a Creative Market Marketplace. Currently available on purchase for $9, this set comes with 72 hi-res JPG files.
 
-### Markdown
+You’re a designer looking for high-quality [decorative paper textures](https://textures.world/paper/72-decorative-paper-textures) to use in your creative projects. Not only are the textures you find on popular royalty-free stock photography sites low resolution, weak canvas-like backgrounds, but they’re also generic in nature. With Decorative Paper Background Textures, designers will be able to browse through 100s of unique background textures and find that perfect paper texture for their project.
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+ This collection contains all the best textures, from vintage envelopes and classic book pages to colorful marble and stone varieties. Browse our selection of premium and free paper textures which are sure to make any creative project shine.
 
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/sanches812/72-Decorative-Paper-Backgrounds-Textures/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+Textures.World Review: [72 Decorative Paper Backgrounds Textures ](https://textures.world/paper/72-decorative-paper-textures)
