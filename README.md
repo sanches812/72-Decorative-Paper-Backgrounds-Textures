@@ -9,6 +9,6 @@ You’re a designer looking for high-quality <a href="https://textures.world/pap
 
  This collection contains all the best textures, from vintage envelopes and classic book pages to colorful marble and stone varieties. Browse our selection of premium and free paper textures which are sure to make any creative project shine.
 
-Textures.World Review: <a href="https://textures.world/paper/72-decorative-paper-textures">72 Decorative Paper Backgrounds Textures</a>
+Textures.World Review: <a href="https://textures.world/paper/72-decorative-paper-textures">72 Decorative Paper Backgrounds Textures</a> (Download Free Samples)
 
 
