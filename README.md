@@ -1,7 +1,7 @@
 # 72 Decorative Paper Backgrounds Textures
 High Resolution 6000x4000 Px, 72 Dpi, 83 x 55 Inches, Jpg, Digital Download, High Quality
-
 https://textures.world/paper/72-decorative-paper-textures
+#textures #backgrounds
 
 Creative work often requires the manipulation of paper textures. But it’s hard to find high-quality ones because they are not usually available for free download. We have decided to create this unique collection of decorative paper backgrounds in order to fulfill this demand, without spending a lot of money on something that is out there but you can’t use it. Download the set from our website now and get access to the rarest decorative and handcrafted paper textures on the internet!
 
